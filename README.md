@@ -1,5 +1,0 @@
-- 👋 O salvee, Acacio na voz!
-- 👀 Gosto de aprender coisas novas e praticar para aperfeiçoar meus hobbies 
-- 💞️ I’m looking to collaborate on nothing 
-- 😄 Pronouns she| her
-- ⚡ Resilience 
